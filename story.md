@@ -1,1 +1,3 @@
 There were 3 little pigs. They all wanted seperate houses so they went in the forest to build some. The first pig built his house out of straw. 
+The second pig built his out of wood, and the third pig built his out of bricks. 
+Then this big bad wolf came near the first pig's house. He was super hungry so he wanted to eat the pig. So he huffed and puffed and blew the house down. The first little pig then ran to the second pig's house. 
